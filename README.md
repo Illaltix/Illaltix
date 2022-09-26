@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Illaltix
+- I'm a shy petite latina with a lot of sarcasmo.
 - 👀 I’m interested in coding and programming.
 - 🌱 I’m currently learning Python!
 - 📫 How to reach me - xromo963@lsr7.net
